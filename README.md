@@ -1,0 +1,2 @@
+# mannysthoughts
+ideas
